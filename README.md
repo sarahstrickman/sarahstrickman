@@ -1,6 +1,6 @@
 RIT work is privated-- contact me to request access.
 
-[email](mailto:sarah@sarahstrickman.com) is the best way to get in touch.
+[Email](mailto:sarah@sarahstrickman.com) is the best way to get in touch.
 
 
 <!--
