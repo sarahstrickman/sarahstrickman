@@ -1,6 +1,11 @@
-## Hi there 👋
+RIT work is privated-- contact me to request access.
+
+[email](mailto:sarah@sarahstrickman.com) is the best way to get in touch.
+
 
 <!--
+## Hi there 👋
+
 **sarahstrickman/sarahstrickman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
